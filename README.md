@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kczuli
+- 👀 I’m interested in Formula 1, watches and of course cars.
+- 🌱 I’m currently learning to become a Front End Developer.
+- 💞️ I’m looking to collaborate on I don't know yet.
+- 📫 How to reach me via direct message (?).
+- I'm trying to learn so I can create websites. I will be very grateful for any help.
